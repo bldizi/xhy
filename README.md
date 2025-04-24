@@ -1,4 +1,4 @@
-# :sparkles::sparkles:小黄鸭导航-永久发布页sparkles::sparkles:
+# :sparkles::sparkles:小黄鸭导航-永久地址发布页sparkles::sparkles:
 
  :heart: :point_right: 【最新地址】 ：vip.bibeidao03.cc/shouye
  ------
