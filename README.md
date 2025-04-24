@@ -1,4 +1,4 @@
-# :sparkles::sparkles:小黄鸭导航-永久地址发布页sparkles::sparkles:
+# :sparkles::sparkles:小黄鸭导航-永久地址发布页:sparkles::sparkles:
 
  :heart: :point_right: 【最新地址】 ：vip.bibeidao03.cc/shouye
  ------
@@ -15,4 +15,4 @@
 #### :近期部分国产浏览器屏蔽网址，推荐使用Chrome谷歌浏览器、Edge浏览器访问，苹果使用自带浏览safari。
 #### :如无法访问可切换其它网络或者WIFI。
 --
-#### 如果您迷路了请来信：xhydh@#gmail.com（#替换@）（以上地址无法访问请发送任何内容获取最新地址）__
+#### 如果您迷路了请来信：xiaohuangyadh#gmail.com（#替换@）（以上地址无法访问请发送任何内容获取最新地址）__
